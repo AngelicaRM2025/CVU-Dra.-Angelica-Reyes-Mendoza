@@ -1,2 +1,3 @@
 # CVU-Dra.-Angelica-Reyes-Mendoza
-Dra. Angélica Reyes Mendoza Es Doctora en Contaduría
+Doctora en Contaduría
+copyhttps://www.linkedin.com/in/dra-angelica-reyes-mendoza-0a62715b/
